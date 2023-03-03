@@ -8,15 +8,15 @@
 
 - I’m currently working on **Faveo project**
 
-- I’m currently learning **Product management**
+- I’m currently learning **Product management!**
 
-- I’m looking to collaborate with **Big and Interesting projects**
+- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense**
 
-- Don't Ask me about **Front-end and Fixing your Printer**
+- Don't Ask me about **Front-end**
 
 - How to reach me: **sherzodcode@gmail.com**
 
-- Fun fact **I have an artistic skills in Photoshop**
+- Fun fact **I have an artistic skills**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
