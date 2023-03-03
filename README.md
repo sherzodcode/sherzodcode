@@ -12,11 +12,11 @@
 
 - I’m looking to collaborate with **Big and Interesting projects**
 
-- Don't Ask me about **Front-end**
+- Don't Ask me about **Front-end and Fixing your Printer**
 
 - How to reach me: **sherzodcode@gmail.com**
 
-- Fun fact **I have an artistic skills**
+- Fun fact **I have an artistic skills in Photoshop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
