@@ -10,7 +10,7 @@
 
 - I’m currently learning **Product management!**
 
-- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense, i don't even  wanna work with not useless programs **
+- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense **
 
 - Don't Ask me about **Front-end**
 
