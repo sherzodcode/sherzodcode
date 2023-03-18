@@ -12,8 +12,6 @@
 
 - I’m looking to collaborate with **Big and Interesting projects, That actually makes sense **
 
-- Don't Ask me about **Front-end**
-
 - How to reach me: **sherzodcode@gmail.com**
 
 - Fun fact **I have an artistic skills**
