@@ -8,9 +8,9 @@
 
 - I’m currently working on **Faveo project**
 
-- I’m currently learning **Product management!**
+- I’m currently learning **Nest js and TypeOrm!**
 
-- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense **
+- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense. **
 
 - How to reach me: **sherzodcode@gmail.com**
 
