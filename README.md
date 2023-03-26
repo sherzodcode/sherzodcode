@@ -10,7 +10,7 @@
 
 - I’m currently learning **Nest js and TypeOrm!**
 
-- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense. **
+- I’m looking to collaborate with **Big and Interesting projects, That actually makes sense in real life .**
 
 - How to reach me: **sherzodcode@gmail.com**
 
